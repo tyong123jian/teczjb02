@@ -1,0 +1,1 @@
+You don't understand ,how stupit you are!
